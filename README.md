@@ -1,1 +1,0 @@
-# Yalnız-Degilsin-
