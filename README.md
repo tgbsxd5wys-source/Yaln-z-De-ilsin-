@@ -1,1 +1,1 @@
-# Yaln-z-De-ilsin-
+# Yalnız-Degilsin-
